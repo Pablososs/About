@@ -1,2 +1,3 @@
 # About
-![hippo](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)
+
+![hippo](https://giphy.com/gifs/neonrated-neon-rated-enys-men-iuQF9lv3uvwcPLHGSW)
